@@ -8,7 +8,7 @@
 
 
 
+https://github.com/Malik-Girondin/gamestop/assets/132381912/d51d427e-379b-42af-be96-a0f102f9514e
 
-https://github.com/Malik-Girondin/gamestop/assets/132381912/4a1e42ce-f29e-444b-8c47-80b71b4a97ec
 
 
