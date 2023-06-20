@@ -5,3 +5,10 @@
 * View the pre-order deal here: https://spider-man2deal.netlify.app/
 
 # View the Demo Video Below:
+
+
+
+https://github.com/Malik-Girondin/gamestop/assets/132381912/d51d427e-379b-42af-be96-a0f102f9514e
+
+
+
